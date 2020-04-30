@@ -1,2 +1,3 @@
 # KeepInventory
-#KEEP INVENTORY 
+# IF has BUG OR ERROL. Contact Wool
+# THANHKS FOR DOWNLOAD
